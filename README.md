@@ -1,1 +1,1 @@
-# Notes
+# Notes Taken From Obsidian
