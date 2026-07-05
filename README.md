@@ -1,2 +1,2 @@
-# Notes Taken From Obsidian
+# Notes 
  
